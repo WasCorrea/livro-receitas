@@ -38,3 +38,4 @@ Incorpore o creme de leite e retire do fogo antes de ferver.
 Sirva com arroz branco e batata palha.
 
 ESTA RECEITA FICA MELHOR COM MOLHO DE TOMATE .
+Adorei!!!!!
